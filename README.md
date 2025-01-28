@@ -1,0 +1,1 @@
+bunu dikkatlice oku
